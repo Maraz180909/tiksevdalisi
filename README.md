@@ -1,0 +1,2 @@
+# tiksevdalisi
+Mavi tik istiyorummmm
